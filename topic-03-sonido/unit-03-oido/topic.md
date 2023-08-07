@@ -1,0 +1,1 @@
+¿Cómo llega el sonido a nuestros oídos?
